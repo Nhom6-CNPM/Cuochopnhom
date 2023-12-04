@@ -1,1 +1,2 @@
-# Cuochopnhom
+Hình ảnh cuộc họp:
+![Uploading 386470897_1185668919073917_4163620360627897497_n.jpg…]()
